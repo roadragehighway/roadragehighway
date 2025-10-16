@@ -1,27 +1,18 @@
-**Tʜɪs ɪs ᴍʏ Hɪɢʜᴡᴀʏ**
+# Error-in-System
+Error Detected
 
 
-**`Pʀᴏᴛᴇᴄᴛ ᴇᴠᴇʀʏᴏɴᴇ ʏᴏᴜ ʜᴏʟᴅ ᴅᴇᴀʀ WITH ʏᴏᴜʀ ʟɪғᴇ.`**
+**'Hello. There are currently issues going on in this system along with mental health issues.'**
 
-**`Hᴏʟᴅ ʏᴏᴜʀ Bʀᴇᴀᴛʜ Kɪᴅ.`**
+**'Some sites will be closed for now.'**
 
-**RᴏᴀᴅRᴀɢᴇ**
+**'This system error causes us to be Mute.'**
 
-Tʜᴇʏ/Tʜᴇᴍ
-
-Bᴏᴅɪʟʏ --
-
-Osᴅᴅ-1ʙ - Hᴏsᴛ ᴏғ ³ Aʟᴛᴇʀs
-
-Pʟᴇᴀsᴇ ᴅᴏɴ'ᴛ ᴄᴏᴘʏ ᴀɴʏ ᴏғ ᴏᴜʀ sᴋɪɴs. Iɴsᴛᴇᴀᴅ ᴀsᴋ ғᴏʀ ɪɴsᴘᴏ ᴏʀ ᴍᴇssᴀɢᴇ ᴜs.
-
-Other names:
-
-**Rᴏᴀᴅ / Hɪɢʜᴡᴀʏ / Rᴀɢᴇʀ / Lᴏᴄᴀʟ**
+'Please give us time to resolve this issue.'
 
 
+'Give this system time to fix itself/error_10./'
 
 
+**Im sorry if my mental health has made me a bad friend to anyone.**
 
-
-![499507278-c8a2dd7f-3c27-4353-af2a-db928512acde](https://github.com/user-attachments/assets/bad14a78-8858-4c00-a9b1-b8fc8e18ab1d)
