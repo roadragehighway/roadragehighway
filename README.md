@@ -11,8 +11,6 @@ Error Detected
 'Please give us time to resolve this issue.'
 
 
-'Give this system time to fix itself/error_10./'
 
-
-**Im sorry if my mental health has made me a bad friend to anyone.**
+'We apologize if our mental health has distress to anyone.'
 
